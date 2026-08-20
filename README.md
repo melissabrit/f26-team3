@@ -4,4 +4,4 @@
 ## Team Members
 > Team Member #1 Melissa Coronado-Vasquez
 
-> Team Member #2 name
+> Team Member #2 Justin Highland
